@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BuffYoda21
 - 👀 I’m interested in ... Gaming, coding (duh), breaking games, staying sane
 - 🌱 I’m currently learning ... Probably something related to Unity
-- 💞️ I’m looking to collaborate on ... A multiplayer mod for Glyphs
+- 💞️ I’m looking to collaborate on ... probably whatever I am working on. idk I don't update this too often
 - 📫 How to reach me ... Primarily discord @BuffYoda_21
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I am not a robot ✅
